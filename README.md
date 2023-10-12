@@ -10,7 +10,7 @@
 
 - ⚡ Fun fact **hindi na ako nagjajabol**
 
-<h3 align="left">🔗**Connect with me:**</h3>
+<h3 align="left">🔗Connect with me:</h3>
 <p align="left">
 </p>
 
